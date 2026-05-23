@@ -11,3 +11,8 @@
 - Bluey (série) — amou
 - Beat Bugs (série) — amou
 - A Casa Mágica da Gabby (série) — amou
+
+## Recomendações geradas
+
+- Ernest e Célestine (filme) — recomendado em 2026-05-23
+- Hilda (série) — recomendado em 2026-05-23
