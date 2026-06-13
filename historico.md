@@ -11,3 +11,8 @@
 - Bluey (série) — amou
 - Beat Bugs (série) — amou
 - A Casa Mágica da Gabby (série) — amou
+
+## Recomendações geradas
+
+- O Reino dos Gatos (filme) — recomendado em 2026-06-13
+- Hilda (série) — recomendado em 2026-06-13
