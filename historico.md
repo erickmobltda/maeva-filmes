@@ -11,3 +11,8 @@
 - Bluey (série) — amou
 - Beat Bugs (série) — amou
 - A Casa Mágica da Gabby (série) — amou
+
+## Recomendações geradas
+
+- Quem És Tu, Robin? (filme) — recomendado em 2026-07-25
+- Waffles + Mochi (série) — recomendado em 2026-07-25
