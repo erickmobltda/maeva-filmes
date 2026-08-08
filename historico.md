@@ -11,3 +11,8 @@
 - Bluey (série) — amou
 - Beat Bugs (série) — amou
 - A Casa Mágica da Gabby (série) — amou
+
+## Recomendações geradas
+
+- O Dragão do Meu Pai (filme) — recomendado em 2026-08-08
+- Motown Magic (série) — recomendado em 2026-08-08
