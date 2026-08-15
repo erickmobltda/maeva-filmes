@@ -11,3 +11,8 @@
 - Bluey (série) — amou
 - Beat Bugs (série) — amou
 - A Casa Mágica da Gabby (série) — amou
+
+## Recomendações geradas
+
+- Soul (filme) — recomendado em 2026-08-15
+- Eureka! (série) — recomendado em 2026-08-15
