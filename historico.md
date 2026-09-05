@@ -40,3 +40,5 @@
 - Waffles + Mochi (série) — recomendado em 2026-07-25
 - Ponyo (filme) — recomendado em 2026-08-01
 - Ada Batista, Cientista (série) — recomendado em 2026-08-01
+- O Dragão do Meu Pai (filme) — recomendado em 2026-09-05
+- Motown Magic (série) — recomendado em 2026-09-05

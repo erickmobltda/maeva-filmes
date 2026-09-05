@@ -161,3 +161,17 @@ As entradas são adicionadas automaticamente — não é necessário editar este
 - **Por que a Maeva vai amar:** A série tem números musicais originais em praticamente todo episódio — incluindo o tema de abertura cantado por Renée Elise Goldsberry, de Hamilton —, o que fala diretamente à forma como Maeva sente a música. Ada é uma protagonista cuja mente inquieta, cheia de hipóteses e perguntas grandes demais para o tamanho dela, é um espelho quase literal da giftedness da Maeva — a série celebra explicitamente esse jeito de ser, em vez de tentar encaixá-la em uma caixinha. O tom é sempre gentil e colaborativo, sem vilões, sustos ou caos visual: os "problemas" de cada episódio são mistérios científicos, resolvidos com curiosidade e trabalho em equipe, num ritmo cheio de leveza e cor sem nunca ser barulhento.
 
 ---
+
+## 2026-09-05
+
+### 🎬 Filme: O Dragão do Meu Pai
+- **Onde assistir:** Netflix
+- **Resumo:** Elmer Elevator foge de casa em busca de uma ilha lendária onde um filhote de dragão vive prisioneiro de animais que querem usá-lo para atravessar um rio e salvar sua floresta de secar por completo. Armado apenas com um mapa desenhado à mão e a teimosia de acreditar no impossível, Elmer parte numa jornada onde resgatar o dragão significa, antes de tudo, aprender a confiar em si mesmo. Dirigido pelos criadores de O Segredo do Livro de Kells e Wolfwalkers, o filme é aquarela pura em movimento.
+- **Por que a Maeva vai amar:** Vem do estúdio irlandês Cartoon Saloon, que carrega a mesma assinatura de cores suaves e texturas pintadas à mão de suas outras obras — nenhum instante de agressão visual ou sonora, só magia contida em movimento contínuo. A trilha original de Jeff e Mychael Danna é orquestral, quente e emocional, do tipo que sustenta cada cena sem nunca gritar. A jornada de Elmer fala de coragem, imaginação e do poder de acreditar em coisas que os adultos dizem ser "impossíveis" — algo que vai ressoar fundo com a mente vívida e o coração sensível da Maeva.
+
+### 📺 Série: Motown Magic
+- **Onde assistir:** Netflix
+- **Resumo:** Ben é um menino com um pincel mágico que pinta a arte de rua da sua cidade e a faz ganhar vida, transformando cada esquina de Motown num palco de cor e ritmo. Cada episódio, de poucos minutinhos, mistura uma pequena aventura a clássicos reais do catálogo da Motown reimaginados, num universo onde música e arte literalmente saltam da parede. É uma carta de amor ao poder que a criatividade tem de transformar o mundo ao redor.
+- **Por que a Maeva vai amar:** Episódios curtos (cerca de 15 minutos) mantêm o ritmo leve e fácil de acompanhar, sem sobrecarregar — perfeito para sua atenção e sua sensibilidade sensorial. A trilha sonora usa o catálogo real da Motown, com arranjos calorosos e cheios de groove, mas nunca estridentes ou caóticos, e sem nenhum vilão ameaçador. A premissa — um pincel que transforma arte de rua em magia viva — é exatamente a fusão entre arte, música e encantamento que a Maeva já enxerga naturalmente no mundo ao seu redor.
+
+---
