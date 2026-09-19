@@ -11,3 +11,8 @@
 - Bluey (série) — amou
 - Beat Bugs (série) — amou
 - A Casa Mágica da Gabby (série) — amou
+
+## Recomendações geradas
+
+- My Little Pony: Nova Geração (filme) — recomendado em 2026-09-19
+- A Magia da Motown (série) — recomendado em 2026-09-19
