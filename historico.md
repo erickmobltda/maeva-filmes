@@ -11,3 +11,8 @@
 - Bluey (série) — amou
 - Beat Bugs (série) — amou
 - A Casa Mágica da Gabby (série) — amou
+
+## Recomendações geradas
+
+- Os Aristogatos (filme) — recomendado em 2026-10-10
+- Motown Magic (série) — recomendado em 2026-10-10
